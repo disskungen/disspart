@@ -1,3 +1,4 @@
 ![image](https://github.com/user-attachments/assets/225a29a3-efc5-4a4b-8f7f-6b68caf66ff7)
 бЛа бла бла 
-![Uploading image.png…]()
+![image](https://github.com/user-attachments/assets/262f99fd-e4b3-47c6-bf45-95c5079d636d)
+
