@@ -2,3 +2,6 @@
 бЛа бла бла 
 ![image](https://github.com/user-attachments/assets/262f99fd-e4b3-47c6-bf45-95c5079d636d)
 
+
+![image](https://github.com/user-attachments/assets/e9d7a6fd-99f9-49bf-83f0-fd4b16fdb250)
+
