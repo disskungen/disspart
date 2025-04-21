@@ -5,4 +5,5 @@
 
 ![image](https://github.com/user-attachments/assets/e9d7a6fd-99f9-49bf-83f0-fd4b16fdb250)
 
-https://s2.glbimg.com/Z-wScSlyq7GLYxxZCo5XCZQ54oM=/e.glbimg.com/og/ed/f/original/2014/11/12/ok-fine-ill-take-off_2.gif
+![ok-fine-ill-take-off_2](https://github.com/user-attachments/assets/685f5735-8e88-4fd9-8b69-218567ae98c5)
+
