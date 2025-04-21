@@ -5,5 +5,4 @@
 
 ![image](https://github.com/user-attachments/assets/e9d7a6fd-99f9-49bf-83f0-fd4b16fdb250)
 
-![Uploading ok-fine-ill-take-off_2.gif…]()
- пава
+https://s2.glbimg.com/Z-wScSlyq7GLYxxZCo5XCZQ54oM=/e.glbimg.com/og/ed/f/original/2014/11/12/ok-fine-ill-take-off_2.gif
