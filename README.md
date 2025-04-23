@@ -8,4 +8,7 @@
 
 
 ![image](https://github.com/user-attachments/assets/a40895f4-7285-436a-b15c-bd1dafee7d2f)
-https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExZjd2YjY5eHB6YnZ0czBoZmxocm1hZ2h5MHpoNmVqM3RzZWxseG5sayZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/WUeeGwT8d8KFa/giphy.gif
+
+![giphy](https://github.com/user-attachments/assets/d8658d9d-8331-4ed0-a993-0e6183638574)
+![giphy](https://github.com/user-attachments/assets/039f895c-7424-4cda-bd55-65698c6f0f61)
+![giphy](https://github.com/user-attachments/assets/8b6f197e-618d-4644-beca-11ec161536fa)
